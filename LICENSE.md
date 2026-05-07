@@ -1,4 +1,4 @@
-
+Experience survive the apocalypse like never before with rare survive the apocalypse Scripts, the #1 Script. Includes infinite resources and aimbot
 
 
 
